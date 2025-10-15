@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **angwenyieugene20@gmail.com**
 
-- ⚡ Fun fact **If aliens found as dancing what would they think?**
+- ⚡ Fun fact **If aliens found you dancing what would they think?**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
